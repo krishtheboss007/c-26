@@ -1,0 +1,1 @@
+Flour, Water, Corn Starch, Vegetable Oil (Canola/Soybean Oil), Salt, Fumaric Acid and Lactic Acid.s
